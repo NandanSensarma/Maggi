@@ -1,0 +1,1 @@
+Maggi was made in Switzerland, which the Swiss Company 'Nestle' owns. It was India's first instant noodles released in 1983. It's preparation time is very less, and has a relishing taste. It is still enjoyed by millions of people daily worldwide, especially India. 
